@@ -1,0 +1,3 @@
+User-agent: *
+Disallow:
+Sitemap: https://gwentman.github.io/sitemap.xml
