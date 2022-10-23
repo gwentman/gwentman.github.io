@@ -37,7 +37,7 @@ In [Arthur Henderson Smith's](https://en.wikipedia.org/wiki/Arthur_Henderson_Smi
 
 *"...There is very little waste in the preparation of Chinese food, and everything is made to do so much duty as possible. What there is left, after an ordinary Chinese family have finished one of their meals would represent but a minute fraction of the net cost of the food. In illustration of this general fact, it is only necessary to glance at the physical condition of the Chinese dog or cat. It is the unhappy function of these animals to " live " on the leavings of human beings, and their lives are uniformly protracted at a poor dying rate..."*
 
-Dude wrote this book in 1894, part of it is outdated and racist in modern standard and part of it is insightful and remains true till this day. For example, he got this right, the animal parts or offal that Westerns feed their pets are often considered as delicacies by the Chinese.
+Dude wrote this book in 1894, part of it is outdated and not pc in modern standard and part of it is insightful and remains true till this day. For example, he got this right, the animal parts or offal that Westerns feed their pets are often considered as delicacies by the Chinese.
 
 I love to cook and eat offal. Fish head, pig intestines, lamb kidney, blood, they are all delicious if being processed correctly. Like all things, there are pros and cons when dealing with offal.
 
